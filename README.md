@@ -1,3 +1,3 @@
-◠◠    name       gender    terms
+◠◠    wip
 </div>
-(；´д｀)ゞ   text  / info      ◡◡
+(；´д｀)ゞ   wip :)      ◡◡
