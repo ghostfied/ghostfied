@@ -10,6 +10,8 @@
 <div></div>
 🂱 Cuddles + Hide / C + H : i'm totally fine with it, especially from fandoms i enjoy.
 <div></div>
+Do not copy my skins please, asking for gift or taking inspo is ok tho.
+<div></div>
 ♱ W2i / Whisper to interact : I'm normally offtab or just distracted with something else (drawing, studying, watching sm..) i also don't like to be directly approached, prefer whispers instead.
 <div></div>
 the "Away" status at all times has no actual purpose other than "cute moon icon ^_^"
