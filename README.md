@@ -18,7 +18,7 @@ the "Away" status at all times has no actual purpose other than "cute moon icon 
 ## ︶︶†︶◞ ♱ ◟︶†︶︶
 
 <div></div>
-Dni : Basic dni criteria. -12 and +19. Anime, Dandy's world and Hazbin Hotel/Helluva Boss fans (I may have some exceptions regarding Dandy's World.)
+Dni : Basic dni criteria. -12 and +19. Nsfw. Anime, Dandy's world and Hazbin Hotel/Helluva Boss fans (I may have some exceptions regarding Dandy's World.)
 <div></div>
 Byf : I'm not very talktive, don't mistake my dryness/lack of emotion through text as rude or arrogant.
 <div></div>
@@ -34,3 +34,6 @@ I'm more active on discord, so don't mind asking for my user.
 <div></div>
 
 # ͜　︶　◟﹒　　 ﹒◞　︶　 ͜
+
+<div></div>
+oww i love women! oh i'm so yuriful! *turns favorite character into a butch*
