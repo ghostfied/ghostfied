@@ -30,7 +30,7 @@ Do not copy my skins please, asking for gift or taking inspo is ok tho.
 <div></div>
 🂱 Current hyperfixations : Sprunki, Parkour Civilization, Ultrakill, The Robloxia: Until dawn, Madness combat & Phighting
 <div></div>
-Comforts : Most cowboy, medic or jester themed characters, Tunner, Pest, Clownpierce, Lampert, Venomshank, Streetcleaner (yea.), John doe, Sanford.
+Comforts : Most cowboy, medic or jester themed characters, Tunner, Pest, Clownpierce, Lampert, Venomshank, Streetcleaner (yea.), Medkit, John doe, Sanford.
 <div></div>
 ✧ I'm more active on discord, so don't mind asking for my user.
 <div></div>
