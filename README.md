@@ -28,7 +28,7 @@ the "Away" status at all times has no actual purpose other than "cute moon icon 
 <div></div>
 🂱 Current hyperfixations : Sprunki, Parkour Civilization, Ultrakill, The Robloxia: Until dawn, Madness combat & Phighting
 <div></div>
-Comforts : Most cowboy, medic or jester themed characters, Tunner, Clownpierce, Lampert, Streetcleaner (yea.), John doe, Sanford.
+Comforts : Most cowboy, medic or jester themed characters, Tunner, Pest, Clownpierce, Lampert, Streetcleaner (yea.), John doe, Sanford.
 <div></div>
 ✧ I'm more active on discord, so don't mind asking for my user.
 <div></div>
