@@ -8,9 +8,9 @@
 #  ͡　︵　𓆩﹒　∔　﹒𓆪　︵　 ͡
 
 <div></div>
-Cuddles + Hide / C + H : i'm totally fine with it, especially from fandoms i enjoy.
+🂱 Cuddles + Hide / C + H : i'm totally fine with it, especially from fandoms i enjoy.
 <div></div>
-W2i / Whisper to interact : I'm normally offtab or just distracted with something else (drawing, studying, watching sm..) i also don't like to be directly approached, prefer whispers instead.
+♱ W2i / Whisper to interact : I'm normally offtab or just distracted with something else (drawing, studying, watching sm..) i also don't like to be directly approached, prefer whispers instead.
 <div></div>
 the "Away" status at all times has no actual purpose other than "cute moon icon ^_^"
 <div></div>
@@ -18,19 +18,19 @@ the "Away" status at all times has no actual purpose other than "cute moon icon 
 ## ︶︶†︶◞ ♱ ◟︶†︶︶
 
 <div></div>
-Dni : Basic dni criteria. -12 and +19. Nsfw. Anime, Dandy's world and Hazbin Hotel/Helluva Boss fans (I may have some exceptions regarding Dandy's World.)
+✧ Dni : Basic dni criteria. -12 and +19. Nsfw. Anime, Dandy's world and Hazbin Hotel/Helluva Boss fans (I may have some exceptions regarding Dandy's World.)
 <div></div>
-Byf : I'm not very talktive, don't mistake my dryness/lack of emotion through text as rude or arrogant.
+♱ Byf : I'm not very talktive, don't mistake my dryness/lack of emotion through text as rude or arrogant.
 <div></div>
 
 ## ︵†︵︵◝ ♱ ◜︵︵†︵
 
 <div></div>
-Current hyperfixations : Sprunki, Parkour Civilization, Ultrakill, The Robloxia: Until dawn, Madness combat & Phighting
+🂱 Current hyperfixations : Sprunki, Parkour Civilization, Ultrakill, The Robloxia: Until dawn, Madness combat & Phighting
 <div></div>
 Comforts : Most cowboy, medic or jester themed characters, Tunner, Clownpierce, Lampert, Streetcleaner (yea.), John doe, Sanford.
 <div></div>
-I'm more active on discord, so don't mind asking for my user.
+✧ I'm more active on discord, so don't mind asking for my user.
 <div></div>
 
 # ͜　︶　◟﹒　　 ﹒◞　︶　 ͜
